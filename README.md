@@ -1,0 +1,7 @@
+-  sobre mim
+- 
+- 👋 meu email de entrada @ratinho2007
+- 👀 minha senha e vitinho0103
+- 🌱 entrei na minha pagina para melhorar meus estudos
+- 💞️ moro em telemaco borba
+- 📫 toda mensagem que vier cai em minha conta
